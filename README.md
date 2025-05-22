@@ -1,6 +1,4 @@
 # Hi there, I'm Atem Kuot! 👋
-![image](https://github.com/user-attachments/assets/bb3ab8aa-0332-4ff3-acf1-de74a74e4fb1)
-
 
 ## About Me 🚀
 
