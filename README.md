@@ -1,4 +1,4 @@
-# Hi there, I'm Atem Kuot! 👋
+# Hi there, I'm Teemo! 👋
 
 ## About Me 🚀
 
